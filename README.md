@@ -1,1 +1,1 @@
-Big Hallween Update is here new Shop Cosmetics and more! Go check out the store bean chasers and if not already update your game to the newest version!
+2 Day warning everything will go back to normal for around a week then turkeys!
