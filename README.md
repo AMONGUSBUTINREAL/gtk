@@ -1,3 +1,3 @@
-Its all back to normal and everything is bright again soon next will be a afternoon update and mre TURKEYS SOON! also tell me if the horror thing quits again in the discord use link below to join
-
+So I updated there is now a mines so there that small update with horror Robot monkeys >:)
+      DISCORD PLEASE JOIN
    https://discord.gg/yYAevqcS9Q
