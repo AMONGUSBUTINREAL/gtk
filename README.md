@@ -1,3 +1,3 @@
-So I updated there is now a mines so there that small update with horror Robot monkeys >:)
+Just bug fixes and pactes to get out the map
       DISCORD PLEASE JOIN
    https://discord.gg/yYAevqcS9Q
