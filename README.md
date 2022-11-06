@@ -1,3 +1,3 @@
-Just bug fixes and pactes to get out the map
+TURKEYS AND ThANKS GIVING AND MORE COSMETICS YAY
       DISCORD PLEASE JOIN
    https://discord.gg/yYAevqcS9Q
