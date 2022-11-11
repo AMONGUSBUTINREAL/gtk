@@ -1,4 +1,3 @@
-Thanksgiving Update two tomrrow will be cosmetics and new map is today YAY Thank you for almost 900Installs TYSM
-            patches made
+FINAL UPDATE STILL CHIRTMAS YAY THIS MIGHT BE A HUGE UPDATE FOR CHISTMAS 
       DISCORD PLEASE JOIN
    https://discord.gg/yYAevqcS9Q
